@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **angelprokopov@students.ue-varna.bg**
 
-- ⚡ Fun fact **I love travelling, photograp4hy, dancing and listen music**
+- ⚡ Fun fact **I love travelling, photography, dancing and listen music**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
